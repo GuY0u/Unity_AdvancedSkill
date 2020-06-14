@@ -16,4 +16,4 @@
 13. AI 순찰 및 특정지역(거점) 방어
 
 
-    유튜브 : [https://www.youtube.com/channel/UC9w-j0OqNzdtOqiYj4lDHmg](https://www.youtube.com/channel/UC9w-j0OqNzdtOqiYj4lDHmg)
+    케이디 유튜브 : [https://www.youtube.com/channel/UC9w-j0OqNzdtOqiYj4lDHmg](https://www.youtube.com/channel/UC9w-j0OqNzdtOqiYj4lDHmg)
